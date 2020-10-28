@@ -1,7 +1,6 @@
 ### Hi there 👋
 
-![](https://www.canva.com/design/DAEL5GE_2yI/CrL94VrnATSXhmFmqbXiPg/view?utm_content=DAEL5GE_2yI&utm_campaign=designshare&utm_medium=link&utm_source=homepage_design_menu)
-
+![Blue Green and White Classic Real Estate Business Card](https://user-images.githubusercontent.com/62911364/97450708-01281d80-1901-11eb-8d48-3deea9189036.png)
 <!--
 **george887/george887** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
